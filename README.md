@@ -24,5 +24,3 @@ Furthermore, our social media promotion strategies drive engagement, boost brand
 **Elevate Your Business with Digital Innovators Hub 🌟**
 If you're seeking  products, consultation, or training, we're here to assist you every step of the way.
 Feel free to reach out to us for tailored solutions and expert guidance. Thank you for considering us! ☺️
-
-**Contact Email:** digitalinnovatorshub2024@gmail.com
