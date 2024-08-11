@@ -1,4 +1,4 @@
-👋 Hi, we're Digital Innovators Hub!
+👋 Hi i'm Zulqernain Iqbal!
 
 👀 We're interested in collaborating on Zoho-related projects and opportunities.
 
